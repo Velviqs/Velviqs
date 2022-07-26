@@ -1,4 +1,4 @@
-Obviously, it is called README, so you are reading me now. Also global warming sucks! :'D
+Obviously, it is called README, so you are reading me now. 
 
 You can talk to me via discord: Velviqs#0001
 
